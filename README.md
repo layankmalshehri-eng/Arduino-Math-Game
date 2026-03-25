@@ -7,7 +7,8 @@
 ## 🎥 فيديو الشرح
 
 📺 شاهد المشروع على يوتيوب:
-https://youtu.be/5t5QuluEEGE?si=J4FzgVisY6dx3uqh
+
+https://youtu.be/nejjQAcf1SM?si=xxU7jzs3agyRt-An
 
 ---
 
